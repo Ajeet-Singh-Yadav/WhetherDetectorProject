@@ -1,3 +1,3 @@
 # WhetherDetectorProject
 
-- Ajeet Singh Yadav says that this community is Amazing.
+- Ajeet Singh Yadav says that this community is Amazing!.
